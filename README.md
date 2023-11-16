@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @odelay-tomato
-- 👀 I’m interested in...a lot o things.
+- 👀 I’m interested in...a lot of things.
 - 🌱 I’m currently learning whatever catches my attention.
 - 💞️ I’m looking to collaborate on...not much right now (still lots to think about).
 - 📫 How to reach me ... maybe when I'm ready to collaborate.
